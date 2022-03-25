@@ -1,1 +1,1 @@
-### Hi there, I'm Lalit - aka [LalitB10][WEBSITE -> file:///C:/Users/lalit/OneDrive/Documents/GitHub/Lalit.github.io/index.html]
+### Hi there, I'm Lalit - aka [LalitB10][WEBSITE -> https://lalitb10.github.io/Lalit10.github.io/]
